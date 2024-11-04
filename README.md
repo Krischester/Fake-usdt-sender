@@ -5,7 +5,11 @@ The only flash software in the world 🌎😏
 
 Buy The Real Flash Coins💎🌉 (Base Level) Visit Website For More Levels
 
-Transferable ⭐️ Tradable ⭐Not swappable ⭐️ All Web 3 Wallets Supported ⭐️ Stays Life Long ⭐️
+# Transferable ⭐️
+# Tradable ⭐
+# Not swappable ⭐️ 
+# All Web 3 Wallets Supported ⭐️
+# Stays Life Long ⭐️
 
 Website - https://t.me/allianceflashdeal
 
