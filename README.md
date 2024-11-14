@@ -16,7 +16,7 @@ Website - https://t.me/allianceflashdeal
 Download Free Flash USDT Sender Software In Our platform - https://t.me/allianceflashdeal
 
 
-Contact me - To Purchase The Flash Coins Telegram - @krischester - https://t.me/krischester 
+Contact me - To Purchase The Flash Coins on Telegram - @krischester - https://t.me/krischester 
 
 Want To Know About How Flash USDT Works ? And What Is Flash USDT ?
 https://t.me/allianceflashdeal
